@@ -3,15 +3,15 @@ body {
     color: #073642;
 }
 
+p {
+    font-family: Georgia, Serif;
+    text-align: left;
+}
+
 a:link {
     color: #073642;
 }
 
 a:visited {
     color: #586e75;
-}
-
-p {
-    font-family: Georgia, Serif;
-    text-align: left;
 }
