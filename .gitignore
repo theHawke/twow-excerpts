@@ -1,0 +1,4 @@
+gen/.cabal-sandbox/
+gen/cabal.sandbox.config
+gen/_*/
+gen/dist/

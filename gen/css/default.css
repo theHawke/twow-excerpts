@@ -3,9 +3,27 @@ body {
     color: #073642;
 }
 
+h2 {
+    text-align: center;
+}
+
 p {
     font-family: Georgia, Serif;
     text-align: left;
+}
+
+div {
+    width: 900px;
+    margin-left: auto;
+    margin-right: auto;
+}
+
+div#content {
+}
+
+div#footer {
+    color: #839496;
+    font-size: 10;
 }
 
 a:link {
