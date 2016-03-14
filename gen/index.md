@@ -4,5 +4,5 @@ A collection of all the sample chapters for George R. R. Martin's "The
 Winds Of Winter" released so far (May 2015).
 
 $for(chapters)$
-* [**$title$**]($url$) (from $info$)
+* [**$title$**]($url$) ($info$)
 $endfor$
