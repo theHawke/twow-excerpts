@@ -1,0 +1,675 @@
+---
+title: Arianne II
+info: from [Martin's website](http://www.georgerrmartin.com/excerpt-from-the-winds-of-winter/), [archived](https://web.archive.org/web/20160511182726/http://www.georgerrmartin.com/excerpt-from-the-winds-of-winter/)
+---
+
+## **ARIANNE**
+
+All along the south coast of Cape Wrath rose crumbling stone
+watchtowers, raised in ancient days to give warning of Dornish raiders
+stealing in across the sea. Villages had grown up about the towers. A
+few had flowered into towns.
+
+The _Peregrine_ made port at the Weeping Town, where the corpse of the
+Young Dragon had once lingered for three days on its journey home from
+Dorne. The banners flapping from the town’s stout wooden walls still
+displayed King Tommen’s stag-and-lion, suggesting that here at least
+the writ of the Iron Throne might still hold sway. “Guard your
+tongues,” Arianne warned her company as they disembarked. “It would be
+best if King’s Landing never knew we’d passed this way.” Should Lord
+Connington’s rebellion be put down, it would go ill for them if it was
+known that Dorne had sent her to treat with him and his
+pretender. That was another lesson that her father had taken pains to
+teach her; choose your side with care, and only if they have the
+chance to win.
+
+They had no trouble buying horses, though the cost was five times what
+it would have been last year. “They’re old, but sound,” claimed the
+hostler. “you’ll not find better this side of Storm’s End. The
+griffin’s men seize every horse and mule they come upon. Oxen
+too. Some will make a mark upon a paper if you ask for payment, but
+there’s others who would just as soon cut your belly open and pay you
+with a handful of your own guts. If you come on any such, mind your
+tongues and give the horses up.”
+
+The town was large enough to support three inns, and all their common
+rooms were rife with rumors. Arianne sent her men into each of them,
+to hear what they might hear. In the Broken Shield, Daemon Sand was
+told that the great septry on the Holf of Men had been burned and
+looted by raiders from the sea, and a hundred young novices from the
+motherhouse on Maiden Isle carried off into slavery. In the Loon, Joss
+Hood learned that half a hundred men and boys from the Weeping Town
+had set off north to join Jon Connington at Griffin’s Roost, including
+young Ser Addam, old Lord Whitehead’s son and heir. But in the aptly
+named Drunken Dornishman, Feathers heard men muttering that the
+griffin had put Red Ronnet’s brother to death and raped his maiden
+sister. Ronnet himself was said to be rushing south to avenge his
+brother’s death and his sister’s dishonor.
+
+That night Arianne dispatched the first of her ravens back to Dorne,
+reporting to her father on all they’d seen and heard. The next morning
+her company set out for Mistwood, as the first rays of the rising sun
+were slanting through the peaked roofs and crooked alleys of the
+Weeping Town. By midmorning a light rain began to fall, as they were
+making their way north through a land of green fields and little
+villages. As yet, they had seen no signs of fighting, but all the
+other travelers along the rutted road seemed to be going in the other
+direction, and the women in the villages they passed gazed at them
+with wary eyes and kept their children close. Further north, the
+fields gave way to rolling hills and thick groves of old forest, the
+road dwindled to a track, and villages became less common.
+
+Dusk found them on the fringes of the rainwood, a wet green world
+where brooks and rivers ran through dark forests and the ground was
+made of mud and rotting leaves. Huge willows grew along the
+watercourses, larger than any that Arianne had ever seen, their great
+trunks as gnarled and twisted as an old man’s face and festooned with
+beards of silvery moss. Trees pressed close on every side, shutting
+out the sun; hemlock and red cedars, white oaks, soldier pines that
+stood as tall and straight as towers, colossal sentinels, big-leaf
+maples, redwoods, wormtrees, even here and there a wild
+weirwood. Underneath their tangled branches ferns and flowers grew in
+profusion; sword ferns, lady ferns, bellflowers and piper’s lace,
+evening stars and poison kisses, liverwort, lungwort,
+hornwort. Mushrooms sprouted down amongst the tree roots, and from
+their trunks as well, pale spotted hands that caught the rain. Other
+trees were furred with moss, green or grey or red-tailed, and once a
+vivid purple. Lichens covered every rock and stone. Toadstools
+festered besides rotting logs. The very air seemed green.
+
+Arianne had once heard her father and Maester Caleotte arguing with a
+septon about why the north and south sides of the Sea of Dorne were so
+different. The septon thought it was because of Durran Godsgrief, the
+first Storm King, who had stolen the daughter of the sea god and the
+goddess of the wind and earned their eternal emnity. Prince Doran and
+the maester inclined more toward wind and water, and spoke of how the
+big storms that formed down in the Summer Sea would pick up moisture
+moving north until they slammed into Cape Wrath. For some strange
+reason the storms never seemed to strike at Dorne, she recalled her
+father saying. “I know your reason,” the septon had responded. “No
+Dornishmen ever stole away the daughter of two gods.”
+
+The going was much slower here than it had been in Dorne. Instead of
+proper roads, they rode down crookback slashes that snaked this way
+and that, through clefts in huge moss-covered rocks and down deep
+ravines choked with blackberry brambles. Sometimes the track petered
+out entirely, sinking into bogs or vanishing amongst the ferns,
+leaving Arianne and her companions to find their own way amongst the
+silent trees. The rain still fell, soft and steady. The sound of
+moisture dripping off the leaves was all around them, and every mile
+or so the music of another little waterfall would call to them.
+
+The wood was full of caves as well. That first night they took shelter
+in one of them, to get out of the wet. In Dorne they had often
+travelled after dark, when the moonlight turned the blowing sands to
+silver, but the rainwood was too full of bogs, ravines, and sinkholes,
+and black as pitch beneath the trees, where the moon was just a
+memory.
+
+Feathers made a fire and cooked a brace of hares that Ser Garibald had
+taken with some wild onions and mushrooms he had found along the
+road. After they ate, Elia Sand turned a stick and some dry moss into
+a torch, and went off exploring deeper in the cave. “See that you do
+not go too far,” Arianne told her. “Some of these caves go very
+deep, it is easy to get lost.”
+
+The princess lost another game of _cyvasse_ to Daemon Sand, won one from
+Joss Hood, then retired as the two of them began to teach Jayne
+Ladybright the rules. She was tired of such games.
+
+_Nym and Tyene may have reached King’s Landing by now_, she mused, as
+she settled down crosslegged by the mouth of the cave to watch the
+falling rain. _If not they ought to be there soon._ Three hundred
+seasoned spears had gone with them, over the Boneway, past the ruins
+of Summerhall, and up the kingsroad. If the Lannisters had tried to
+spring their little trap in the kingswood, Lady Nym would have seen
+that it ended in disaster. Nor would the murderers have found their
+prey. Prince Trystane had remained safely back at Sunspear, after a
+tearful parting from Princess Myrcella. _That accounts for one brother_,
+thought Arianne, _but where is Quentyn, if not with the griffin?_ Had he
+wed his dragon queen? King Quentyn. It still sounded silly. This new
+Daenerys Targaryen was younger than Arianne by half a dozen
+years. What would a maid that age want with her dull, bookish brother?
+Young girls dreamed of dashing knights with wicked smiles, not solemn
+boys who always did their duty. _She will want Dorne, though. If she
+hopes to sit the Iron Throne, she must have Sunspear._ If Quentyn was
+the price for that, this dragon queen would pay it. What if she was at
+Griffin’s End with Connington, and all this about another Targaryen
+was just some sort of subtle ruse? Her brother could well be with
+her. <u>King Quentyn</u>. _Will I need to kneel to him?_
+
+No good would come of wondering about it. Quentyn would be king or he
+would not. _I pray Daenerys treats him him more gently than she did her
+own brother._
+
+It was time to sleep. They had long leagues to ride upon the
+morrow. It was only as she settled down that Arianne realized Elia
+Sand had not returned from her explorations. _Her sisters will kill me
+seven different ways if anything has happened to her._ Jayne Ladybright
+swore that the girl had never left the cave, which meant that she was
+still back there somewhere, wandering through the dark. When their
+shouts did not bring her forth, there was nothing to do but make
+torches and go in search of her.
+
+The cave proved much deeper than any of them had suspected. Beyond the
+stony mouth where her company had made their camp and hobbled their
+horses, a series of twisty passageways led down and down, with black
+holes snaking off to either side. Further in, the walls opened up
+again, and the searchers found themselves in a vast limestone cavern,
+larger than the great hall of a castle. Their shouts disturbed a nest
+of bats, who flapped about them noisily, but only distant echoes
+shouted back. A slow circuit of the hall revealed three further
+passages, one so small that it would have required them to proceed on
+hands and knees. “We will try the others first,” the princess
+said. “Daemon, come with me. Garibald, Joss, you try the other one.”
+
+The passageway Arianne had chosen for herself turned steep and wet
+within a hundred feet. The footing grew uncertain. Once she slipped,
+and had to catch herself to keep from sliding. More than once she
+considered turning back, but she could see Ser Daemon’s torch ahead
+and hear him calling for Elia, so she pressed on. And all at once she
+found herself in another cavern, five times as big as the last one,
+surrounded by a forest of stone columns. Daemon Sand moved to her side
+and raised his torch. “Look how the stone’s been shaped,” he
+said. “Those columns, and the wall there. See them?”
+
+“Faces,” said Arianne. _So many sad eyes, staring._
+
+“This place belonged to the children of the forest.”
+
+“A thousand years ago.” Arianne turned her head. “Listen. Is that
+Joss?”
+
+It was. The other searchers had found Elia, as she and Daemon learned
+after they made their way back up the slippery slope to the last
+hall. Their passageway led down to a still black pool, where they
+discovered the girl up to her waist in water, catching blind white
+fish with her bare hands, her torch burning red and smoky in the sand
+where she had planted it.
+
+“You could have died,” Arianne told her, when she’d heard the
+tale. She grabbed Elia by the arm and shook her. “If that torch had
+gone out you would have been alone in the dark, as good as blind. What
+did you think that you were doing?”
+
+“I caught two fish,” said Elia Sand.
+
+“_You could have died,_” said Arianne again. Her words echoed off the
+cavern walls. “_… died … died … died …_”
+
+Later, when they had made their back to the surface and her anger had
+cooled, the princess took the girl aside and sat her down. “Elia,
+this must end,” she told her. “We are not in Dorne now. You are not
+with your sisters, and this is not a game. I want your word that you
+will play the maidservant until we are safely back at Sunspear. I
+want you meek and mild and obedient. You need to hold your
+tongue. I’ll hear no more talk of Lady Lance or jousting, no mention
+of your father or your sisters. The men that I must treat with are
+sellswords. Today they serve this man who calls himself Jon
+Connington, but come the morrow they could just as easily serve the
+Lannisters. All it takes to win a sellsword’s heart is gold, and
+Casterly Rock does not lack for that. If the wrong man should learn
+who you are, you could be seized and held for ransom–“
+
+
+“No,” Elia broke in. “You’re the one they’ll want to ransom. You’re
+the heir to Dorne, I’m just a bastard girl. Your father would give a
+chest of gold for you. My father’s dead.”
+
+“Dead, but not forgotten,” said Arianne, who had spent half her life
+wishing Prince Oberyn had been her father. “You are a Sand Snake, and
+Prince Doran would pay any price to keep you and your sisters safe
+from harm.” That made the child smile at least. “Do I have your sworn
+word? Or must I send you back?”
+
+“I swear.” Elia did not sound happy.
+
+“On your father’s bones.”
+
+“On my father’s bones.”
+
+_That vow she will keep_, Arianne decided. She kissed her cousin on the
+cheek and sent her off to sleep. Perhaps some good would come of her
+adventure. “I never knew how wild she was till now,” Arianne
+complained to Daemon Sand, afterward. “Why would my father inflict
+her on me?”
+
+“Vengeance?” the knight suggested, with a smile.
+
+They reached Mistwood late on the third day. Ser Daemon sent Joss Hood
+ahead to scout for them and learn who held the castle presently.
+“Twenty men walking the walls, maybe more,” he reported on his
+return. “Lots of carts and wagons. Heavy laden going in, empty going
+out. Guards at every gate.”
+
+“Banners?” asked Arianne.
+
+“Gold. On the gatehouse and the keep.”
+
+“What device did they bear?”
+
+“None that I could see, but there was no wind. The banners hung limp
+from their staffs.”
+
+That was vexing. The Golden Company’s banners were cloth-of-gold,
+devoid of arms and ornament… but the banners of House Baratheon were
+also gold, though theirs displayed the crowned stag of Storm’s
+End. Limp golden banners could be either. “Were there others banners?
+Silver-grey?”
+
+“All the ones that I saw were gold, princess.”
+
+She nodded. Mistwood was the seat of House Mertyns, whose arms showed
+a great horned owl, white on grey. If their banners were not flying,
+likely the talk was true, and the castle had fallen into the hands of
+Jon Connington and his sellswords. “We must take the risk,” she told
+her party. Her father’s caution had served Dorne well, she had come to
+accept that, but this was a time for her uncle’s boldness. “On to the
+castle.”
+
+“Shall we unfurl your banner?” asked Joss Hood.
+
+“Not as yet,” said Arianne. In most places, it served her well to play
+the princess, but there were some where it did not.
+
+Half a mile from the castle gates, three men in studded leather
+jerkins and steel halfhelms stepped out of the trees to block their
+path. Two of them carried crossbows, wound and notched. The third was
+armed only with a nasty grin. “And where are you lot bound, my
+pretties?” he asked.
+
+“To Mistfall, to see your master,” answered Daemon Sand.
+
+“Good answer,” said the grinner. “Come with us.”
+
+Mistfall’s new sellsword masters called themselves Young John Mudd and
+Chain. Both knights, to hear them tell it. Neither behaved like any
+knight that Arianne had ever met. Mudd wore brown from head to heel,
+the same shade as his skin, but a pair of golden coins dangled from
+his ears. The Mudds had been kings up by the Trident a thousand years
+ago, she knew, but there was nothing royal about this one. Nor was he
+particularly young, but it seemed his father had also served in the
+Golden Company, where he had been known as Old John Mudd.
+
+Chain was half again Mudd’s height, his broad chest crossed by a pair
+of rusted chains that ran from waist to shoulder. Where Mudd wore
+sword and dagger, Chain bore no weapon but five feet of iron links,
+twice as thick and heavy as the ones that crossed his chest. He
+wielded them like a whip.
+
+They were hard men, brusque and brutal and not well spoken, with scars
+and weathered faces that spoke of long service in the free
+companies. “Serjeants,” Ser Daemon whispered when he saw them. “I have
+known their sort before.”
+
+Once Arianne had made her name and purpose known to them, the two
+serjeants proved hospitable enough. “You’ll stay the night,” said
+Mudd. “There’s beds for all of you. In the morning you’ll have fresh
+horses, and whatever provisions you might need. M’lady’s maester can
+send a bird to Griffin’s Roost to let them know you’re coming.”
+
+“And who would them be?” asked Arianne. “Lord Connington?”
+
+The sellswords exchanged a look. “The Halfmaester,” said John
+Mudd. “It’s him you’ll find at the Roost.”
+
+“Griffin’s marching,” said Chain.
+
+“Marching where?” Ser Daemon ask.
+
+“Not for us to say,” said Mudd. “Chain, hold your tongue.”
+
+Chain gave a snort. “She’s Dorne. Why shouldn’t she know? Come down to
+join us, ain’t she?”
+
+_That has yet to be determined_, thought Arianne Martell, but she felt
+it best not to press the matter.
+
+At evenfall a fine supper was served to them in the solar, high in the
+Tower of Owls, where they were joined by the dowager Lady Mertyns and
+her maester. Though a captive in her own castle, the old woman seemed
+spry and cheerful. “My sons and grandsons went off when Lord Renly
+called his banners,” she told the princess and her party. “I have not
+seen them since, though from time to time they send a raven. One of my
+grandsons took a wound at the Blackwater, but he’s since recovered. I
+expect they will return here soon enough to hang this lot of
+thieves.” She waved a duck leg at Mudd and Chain across the table.
+
+“We are no thieves,” said Mudd. “We’re foragers.”
+
+“Did you buy all that food down in the yard?”
+
+“We foraged it,” said Mudd. “The smallfolk can grow more. We serve
+your rightful king, old crone.” He seemed to be enjoying this. “You
+should learn to speak more courteous to knights.”
+
+“If you two are knights, I’m still a maiden,” said Lady Mertyns. “And
+I’ll speak as I please. What will you do, kill me? I have lived too
+long already.”
+
+Princess Arianne said, “Have you been treated well, my lady?”
+
+“I have not been raped, if that is what you’re asking,” the old woman
+said. “Some of the serving girls have been less fortunate. Married or
+unmarried, the men make no distinctions. “
+
+“No one’s been doing any raping,” insisted Young John
+Mudd. “Connington won’t have that. We follow orders.”
+
+
+Chain nodded. “Some girls was _persuaded_, might be.”
+
+“The same way our smallfolk were persuaded to give you all their
+crops. Melons or maidenheads, it’s all the same to your sort. If you
+want it, you take it.” Lady Mertyns turned to Arianne. “If you should
+see this Lord Connington, you tell him that I knew his mother, and she
+would be ashamed.”
+
+_Perhaps I shall_, the princess thought.
+
+That night she dispatched her second raven to her father.
+
+Arianne was on her way back to her own chamber when she heard muffled
+laughter from the adjoining room. She paused and listened for a
+moment, then pushed the door open to find Elia Sand curled up in a
+window seat, kissing Feathers. When Feathers saw the princess standing
+there, he jumped to his feet and began to stammer. Both of them still
+had their clothes on. Arianne took some small comfort in that as she
+sent Feathers on his way with a sharp look and a “Go”. Then she
+turned to Elia. “He is twice your age. A serving man. He cleans up
+birdshit for the maester. Elia, what were you thinking?”
+
+“We were only kissing. I’m not going to marry him.” Elia crossed her
+arms defiantly beneath her breasts. “You think I never kissed a boy
+before?”
+
+“Feathers is a man.” _A serving man, but still a man._ It did not escape
+the princess that Elia was the same age she had been when she gave her
+maidenhead to Daemon Sand. “I am not your mother. Kiss all the boys
+you want when we return to Dorne. Here and now, though . . . this is
+no place for kisses, Elia. Meek and mild and obedient, you said. Must
+I add chaste to that as well? You swore upon your father’s bones.
+
+“I remember,” said Elia, sounding chastened. “Meek and mild and
+obedient. I won’t kiss him again.”
+
+The shortest way from Mistwood to Griffin’s Roost was through the
+green, wet heart of the rainwood, slow going at the best of times. It
+took Arianne and her company the better part of eight days. They
+travelled to the music of steady, lashing rains beating at the
+treetops up above, though underneath the green great canopy of leaves
+and branches she and her riders stayed surprisingly dry. Chain
+accompanied them for the first four days of their journey north, with
+a line of wagons and ten men of his own. Away from Mudd he proved more
+forthcoming, and Arianne was able to charm his life story out of
+him. His proudest boast was of a great grandsire who had fought with
+the Black Dragon on the Redgrass Field, and crossed the narrow sea
+with Bittersteel. Chain himself had been born into the company,
+fathered on a camp follower by his sellsword father. Though he had
+been raised to speak the Common Tongue and think of himself as
+Westerosi, he had never set foot in any part of the Seven Kingdoms
+till now.
+
+_A sad tale, and a familiar one_, Arianne thought. His life was all of a
+piece, a long list of places where he’d fought, foes he’d faced and
+slain, wounds he’d taken. The princess let him talk, from time to time
+prompting him with a laugh, a touch, or a question, pretending to be
+fascinated. She learned more than she would ever need to know about
+Mudd’s skill with dice, Two Swords and his fondness for red-haired
+women, the time someone made off with Harry Strickland’s favorite
+elephant, Little Pussy and his lucky cat, and the other feats and
+foibles of the men and officers of the Golden Company. But on the
+fourth day, in an unguarded moment, Chain let slip a “ … once we have
+Storm’s End . . .”
+
+The princess let that aside go without comment, though it gave her
+considerable pause. _Storm’s End. This griffin is a bold one, it would
+seem. Or else a fool._ The seat of House Baratheon for three centuries,
+of the ancient Storm Kings for thousands of years before that, Storm’s
+End was said by some to be impregnable. Arianne had heard men argue
+about which was the strongest castle in the realm. Some said Casterly
+Rock, some the Eyrie of the Arryns, some Winterfell in the frozen
+north, but Storm’s End was always mentioned too. Legend said it was
+raised by Brandon the Builder to withstand the fury of a vengeful
+god. Its curtain walls were the highest and strongest in all the Seven
+Kingdoms, forty to eighty feet in thickness. Its mighty windowless
+drum tower stood less than half as tall as the Hightower of Oldtown,
+but rose straight up in place of being stepped, with walls thrice as
+thick as those to be found in Oldtown. No siege tower was tall enough
+to reach Storm’s End battlements; neither mangonel nor trebuchet could
+hope to breech its massive walls. _Does Connington think to mount a
+siege?_ She wondered. _How many men can he have?_ Long before the castle
+fell, the Lannisters would dispatch an army to break any such
+siege. _That way is hopeless too._
+
+That night when she told Ser Daemon what Chain had said, the Bastard
+of Godsgrace seemed as perplexed as she was. “Storm’s End was still
+held by men loyal to Lord Stannis when last I heard. You would think
+Connington might do better to make common cause with another rebel,
+rather than making war upon him too.”
+
+“Stannis is too far away to be of help to him,” Arianne mused.
+“Capturing a few minor castles whilst their lords and garrisons are
+off at distant wars, that’s one thing, but if Lord Connington and his
+pet dragon can somehow take one of the great strongholds of the realm
+… ”
+
+“…the realm would have to take them seriously,” Ser Daemon
+finished. “And some of those who do not love the Lannisters might well
+come flocking to their banners.”
+
+That night Arianne penned another short note to her father and had
+Feathers send it on its way with her third raven.
+
+Young John Mudd has been sending out birds as well, it seemed. Near
+dusk on the fourth day, not long after Chain and his wagons had taken
+their leave of them, Arianne’s company was met by a column of
+sellswords down from Griffin’s Roost, led by the most exotic creature
+that the princess had ever laid her eyes on, with painted fingernails
+and gemstones sparkling in his ears.
+
+Lysono Maar spoke the Common Tongue very well. “I have the honor to be
+the eyes and ears of the Golden Company, princess.”
+
+“You look… ” She hesitated.
+
+“…like a woman?” He laughed. “That I am not.”
+
+“…like a Targaryen,” Arianne insisted. His eyes were a pale lilac,
+his hair a waterfall of white and gold. All the same, something about
+him made her skin crawl. _Was this what Viserys looked like?_ she found
+herself wondering. _If so perhaps it is a good thing he is dead._
+
+“I am flattered. The women of House Targaryen are said to be without
+peer in all the world.”
+
+“And the men of House Targaryen?”
+
+“Oh, even prettier. Though if truth be told, I have only seen the
+one.” Maar took her hand in his own, and kissed her lightly on the
+wrist. “Mistwood sent word of your coming, sweet princess. We will be
+honored to escort you to the Roost, but I fear you have missed Lord
+Connington and our young prince.”
+
+“Off at war?” _Off to Storm’s End?_
+
+“Just so.”
+
+The Lyseni was a very different sort of man than Chain. _This one will
+let nothing slip_, she realized, after a scant few hours in his
+company. Maar was glib enough, but he had perfected the art of talking
+a great deal whilst saying nothing. As for the riders who had come
+with him, they might as well have been mutes for all that her own men
+were able to get out of them.
+
+Arianne decided to confront him openly. On the evening of their fifth
+day out of Mistwood, as they made camp beside the tumbled ruins of an
+old tower overgrown by vines and moss, she settled down beside him and
+said, “Is it true that you have elephants with you?”
+
+“A few,” said Lysono Maar, with a smile and a shrug.
+
+“And dragons? How many dragons do you have?”
+
+“One.”
+
+“By which you mean the boy.”
+
+“Prince Aegon is a man grown, princess.”
+
+“Can he fly? Breathe fire?”
+
+The Lyseni laughed, but his lilac eyes stayed cold.
+
+“Do you play _cyvasse_, my lord?” asked Arianne. “My father has been
+teaching me. I am not very skilled, I must confess, but I do know that
+the dragon is stronger than the elephant.”
+
+“The Golden Company was founded by a dragon.”
+
+“Bittersteel was half-dragon, and all bastard. I am no maester, but I
+know some history. You are still sellswords.”
+
+“If it please you, princess,” he said, all silken courtesy. “We prefer
+to call ourselves a free brotherhood of exiles.”
+
+“As you will. As free brothers go, your company stands well above the
+rest, I grant you. Yet the Golden Company has been defeated every time
+it has crossed into Westeros. They lost when Bittersteel commanded
+them, they failed the Blackfyre Pretenders, they faltered when Maelys
+the Monstrous led them.”
+
+That seemed to amuse him. “We are at least persistent, you must
+admit. And some of those defeats were near things.”
+
+“Some were not. And those who die in near things are no less dead than
+those who die in routs. Prince Doran my father is a wise man, and
+fights only wars that he can win. If the tide of war turns against
+your dragon, the Golden Company will no doubt flee back across the
+narrow sea, as it has done before. As Lord Connington himself did,
+after Robert defeated him at the Battle of the Bells. Dorne has no
+such refuge. Why should we lend our swords and spears to your
+uncertain cause?”
+
+“Prince Aegon is of your own blood, princess. Son of Prince Rhaegar
+Targaryen and Elia of Dorne, your father’s sister.”
+
+“Daenerys Targaryen is of our blood as well. Daughter of King Aerys,
+Rhaegar’s sister. And she has dragons, or so the tales would have us
+believe.” _Fire and blood._ “Where is she?”
+
+“Half a world away on Slaver’s Bay,” said Lysono Maar. “As for these
+purported dragons, I have not seen them. In _cyvasse_, it is true, the
+dragon is mightier than the elephant. On the battlefield, give me
+elephants I can see and touch and send against my foes, not dragons
+made of words and wishes.”
+
+The princess lapsed into a thoughtful silence. And that night she
+dispatched her fourth raven to her father.
+
+And finally Griffin’s Roost emerged from the sea mists, on a grey wet
+day as the rain fell thin and cold. Lysono Maar raised a hand, a
+trumpet blast echoed off the crags, and the castle’s gates yawned open
+before them. The rain-soaked flag that hung above the gatehouse was
+white and red, the princess saw, the colors of House Connington, but
+the golden banners of the company were in evidence as well. They rode
+in double column across the ridge known as the griffin’s throat, with
+the waters of Shipbreaker Bay growling off the rocks to either side.
+
+Within the castle proper, a dozen of the officers of the Golden
+Company had assembled to welcome the Dornish princess. One by one they
+took a knee before her and pressed their lips against the back of her
+hand, as Lysono Maar offered introductions. Most of the names fled her
+head almost as soon as she had heard them.
+
+Chief amongst them was an older man with a lean, lined, clean-shaved
+face, who wore his long hair pulled back into a knot. _This one is no
+fighter_, Arianne sensed. The Lyseni confirmed her judgment when he
+introduced the man as Haldon Halfmaester.
+
+“We have rooms prepared for you and yours, princess,” this Halden
+said, when the introductions finally ran their course. “I trust that
+they will suit. I know you seek Lord Connington, and he desires words
+with you as well, most urgently. If it please you, on the morrow there
+will be a ship to take you to him.”
+
+“Where?” demanded Arianne.
+
+“Has no one told you?” Halden Halfmaester favored her with a smile
+thin and hard as a dagger cut. “Storm’s End is ours. The Hand awaits
+you there.”
+
+Daemon Sand stepped up beside her. “Shipbreaker Bay can be perilous
+even on a fair summer’s day. The safer way to Storm’s End is
+overland.”
+
+“These rains have turned the roads to mud. The journey would take two
+days, perhaps three,” said Halden Halfmaester. A ship will have the
+princess there in half a day or less. There is an army descending on
+Storm’s End from King’s Landing. You will want to be safe inside the
+walls before the battle.”
+
+_Will we?_ Wondered Arianne. “Battle? Or siege?” She did not intend to
+let herself be trapped inside Storm’s End.
+
+“Battle,” Halden said firmly. “Prince Aegon means to smash his enemies
+in the field.”
+
+Arianne exchanged a look with Daemon Sand. “Will you be so good as to
+show us to our rooms? I would like to refresh myself, and change into
+dry clothes.”
+
+Halden bowed. “At once.”
+
+Her company had been housed in the east tower, where the lancet
+windows overlooked Shipbreaker Bay. “Your brother is not at Storm’s
+End, we know that now,” Ser Daemon said, as soon as they were behind
+closed doors. “If Daenerys Targaryen has dragons, they are half a
+world away, and of no use to Dorne. There is nothing for us at Storm’s
+End, princess. If Prince Doran meant to send you into the middle of a
+battle, he would have given you three hundred knights, not three.”
+
+_Do not be so certain of that, ser. He sent my brother off to Slaver’s
+Bay with five knights and a maester._ “I need to speak with
+Connington.” Arianne undid the interlocked sun and spear that
+clasped her cloak, and let the rain-soaked garment slip from her
+shoulders to puddle on the floor. “And I want to see this dragon
+prince of his. If he is truly Elia’s son…”
+
+“Whoever’s son he is, if Connington challenges Mace Tyrell in open
+battle he may soon be a captive, or a corpse.”
+
+“Tyrell is not a man to fear. My uncle Oberyn– ”
+
+“ –is dead, princess. And ten thousand men is equal to the whole
+strength of the Golden Company.”
+
+“Lord Connington knows his own strength, surely. If he means to risk
+battle, he must believe that he can win it.”
+
+“And how many men have died in battles they believed that they could
+win?” Ser Daemon asked her. “Refuse them, princess. I mistrust these
+sellswords. Do not go to Storm’s End.”
+
+_What makes you believe they will allow me that choice?_ She had had the
+uneasy feeling that Haldon Halfmaester and Lysono Maar were going to
+put her on that ship come morning whether she willed it or no. _Better
+not to test them._ “Ser Daemon, you squired for my uncle Oberyn,” she
+said. “If you were with him now, would you be counseling him to refuse
+as well?” She did not wait for him to respond. “I know the answer. And
+if you are about to remind me that I am no Red Viper, I know that
+too. But Prince Oberyn is dead, Prince Doran is old and ill, and I am
+the heir to Dorne.”
+
+“And that is why you should not put yourself at risk.” Daemon Sand
+went to one knee. “Send me to Storm’s End in your stead. Then if the
+griffin’s plans should go awry and Mace Tyrell takes the castle back,
+I will be just another landless knight who swore his sword to this
+pretender in hopes of gain and glory.”
+
+_Whereas if I am taken, the Iron Throne will take that for proof that
+Dorne conspired with these sellswords, and lent aid to their
+invasion._ “It is brave for you to seek to shield me, ser. I thank you
+for that.” She took his hands and drew him back to his feet. “But my
+father entrusted this task to me, not you. Come the morrow, I sail to
+beard the dragon in its den.”
